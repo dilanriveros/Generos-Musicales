@@ -1,0 +1,2 @@
+# historia 
+El trap es un género musical que tiene sus orígenes en la década de 1990 en el sur de Estados Unidos, específicamente en Atlanta, Georgia. Se desarrolló a partir de una combinación de influencias del hip-hop, el rap, el crunk y la música electrónica.
